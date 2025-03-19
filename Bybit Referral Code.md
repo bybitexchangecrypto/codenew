@@ -42,7 +42,7 @@ Users who register with the **40128 referral code** can also participate in **By
 Follow these simple steps to **claim your bonuses** and start trading with Bybit:
 
 1. **Visit the Official Bybit Website**  
-   Go to **[Bybit’s official site](https://www.bybit.com)** and click on the "Sign Up" button.
+   Go to **[Bybit’s official site]([https://www.bybit.com](https://partner.bybit.com/b/40128))** and click on the "Sign Up" button.
 
 2. **Fill in Your Details**  
    Enter your **email address or mobile number** and create a strong password.
