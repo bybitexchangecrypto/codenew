@@ -114,4 +114,4 @@ If you are serious about becoming a successful crypto trader, using the **Bybit 
 
 **Start Demo Trading on Bybit today and take your trading skills to the next level! 🚀**
 
-📌 For the latest updates, always check the official Bybit website.
+📌 For the latest updates, always check the [official Bybit website](https://tradefulltime97.com/go/bybit).
