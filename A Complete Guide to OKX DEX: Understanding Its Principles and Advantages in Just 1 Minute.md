@@ -12,7 +12,7 @@ A [Decentralized Exchange (DEX)](https://www.rayskyinvest.com/60234/defi-dex) is
 🚀 **Unlock Your Crypto Journey with OKX!**  
 Trade with zero fees, access cutting-edge Web3 features, and join millions of global traders. New users get an **exclusive welcome bonus of up to 100 USDT**!  
 
-Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://bit.ly/OKXe)
+Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://bit.ly/3W7cYOh)
 
 ---
 
@@ -101,4 +101,4 @@ DEX aggregators provide a one-stop hub by integrating prices from multiple DEXs,
 
 With OKX DEX, you get the best prices, top-notch security, and a seamless user experience. Start your Web3 trading journey today!
 
-Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://bit.ly/OKXe)
+Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://bit.ly/3W7cYOh)
